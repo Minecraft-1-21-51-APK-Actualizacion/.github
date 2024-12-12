@@ -4,7 +4,7 @@
 
 ¿Eres fanático de la creatividad sin límites y las aventuras épicas? Este **APK** es ideal para ti. Con compatibilidad móvil y opciones ampliadas de personalización, **Minecraft 1.21.51** se mantiene como una elección favorita para jugadores de todas las edades. 🌟🎮
 
-## [Descargar Minecraft 1.21.51 APK ahora](https://spoo.me/qC2Phb)
+## [Descargar Minecraft 1.21.51 APK ahora](https://spoo.me/xmeUwv)
 
 ![unnamed (2)](https://github.com/user-attachments/assets/093713b1-3aba-47f2-b0b8-4e0868146b48)
 
